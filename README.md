@@ -1,1 +1,1 @@
-# xsy-foundation
+# xsy-trinity
